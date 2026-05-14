@@ -1,4 +1,4 @@
-# 
+# new CleanMyMac X for macOS Helper | ad-blocker + VPN-integration is the best CleanMyMac X for macOS helper, featuring ad-blocker and VPN-integration. Secure, efficient, and
 
 
 
